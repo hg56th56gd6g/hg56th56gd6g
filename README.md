@@ -1,6 +1,8 @@
 # this is hg56th56gd6g!
 
-# bilibili: [之前的](https://space.bilibili.com/396749680) or [现在的](https://space.bilibili.com/589848603)
+# [bilibili](https://space.bilibili.com/589848603)
+
+# [youtube](https://www.youtube.com/@hg56th56gd6g)
 
 # 赞助我
 
